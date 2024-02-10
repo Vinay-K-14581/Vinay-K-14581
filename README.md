@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vinay_K
+- 👀 I’m interested in Business analyst / Project Management
+- 🌱 I’m currently learning SQL
+- 📫 How to reach me vinayk14581@gmail.com
